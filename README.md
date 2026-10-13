@@ -1,0 +1,1 @@
+# Waste-bins-locations-in-IIT-Tirupati
